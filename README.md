@@ -1,3 +1,0 @@
-# Trabajosbiocomp
-Princesa
-Perra
